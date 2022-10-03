@@ -1,2 +1,2 @@
-# Practica10-LuisGonzalez
-Buenas noches profesor, aqui le envio la actividad que de la Practica 10.
+# Practica10-PAULA CRISTEL DE LA CRUZ JIMENEZ 
+
